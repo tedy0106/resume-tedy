@@ -1,1 +1,1 @@
-# resume-tedy
+Tetap semangat dan bertenaga !
